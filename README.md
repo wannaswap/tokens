@@ -1,0 +1,1 @@
+# Wannaswap Assets Info
